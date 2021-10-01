@@ -8,7 +8,7 @@ My passions include:
 - 🧹 Ethical Data Practices
 - 🎲 Game Theory
 - 📈 Investing
-- 
+ 
 I would be happy to hear from you at jeddbishop@gmail.com should our interests align.
 
 > Somewhere, something incredible is waiting to be known.  
